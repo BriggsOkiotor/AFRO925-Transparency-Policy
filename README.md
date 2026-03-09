@@ -5,7 +5,7 @@
 Every 925er™ maintains the right to witness how their capital is accelerating the movement. We operate as a "Glass House"—total transparency is our baseline.
 Upon contribution, every member receives an Official Afro925™ Impact Credential. This digital certificate is optimized for LinkedIn and professional portfolios, serving as a formal recognition of your role in bridging the corporate and creative industries.
 
-While we celebrate our supporters through public tags and social media features, we respect the "Silent Operator." You may opt for Anonymous Impact during the secure checkout process to ensure your privacy remains a priority.
+While we celebrate our supporters through public tags and social media features, we respect the "Silent Donor." You may opt for Anonymous Impact during the secure checkout process to ensure your privacy remains a priority, as you will see on the support portal.
 
 ### II. THE TRANSPARENCY REPORT
 To maintain the integrity of our collective, we provide bi-weekly updates on:
