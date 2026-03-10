@@ -2,10 +2,10 @@
 ### I. THE GOLDEN RULE: FISCAL FIDELITY
 ![Afro925 logo](https://github.com/user-attachments/assets/4b6d4f01-6f2c-4060-88b2-b54e5ff89040)
 
-Every 925er™ maintains the right to witness how their capital is accelerating the movement. We operate as a "Glass House"—total transparency is our baseline.
+Every **925er™** maintains the right to witness how their capital is accelerating the movement. We operate as a "Glass House"—total transparency is our baseline.
 Upon contribution, every member receives an Official Afro925™ Impact Credential. This digital certificate is optimized for LinkedIn and professional portfolios, serving as a formal recognition of your role in bridging the corporate and creative industries.
 
-While we celebrate our supporters through public tags and social media features, we respect the "Silent Donor." You may opt for Anonymous Impact during the secure checkout process to ensure your privacy remains a priority, as you will see on the support portal.
+While we celebrate our supporters through public tags and social media features, we respect the "Silent Donor." You may opt for Anonymous Impact during the secure checkout process to ensure your privacy remains a priority, as you will see on the support portal. (here)
 
 ### II. THE TRANSPARENCY REPORT
 To maintain the integrity of our collective, we provide bi-weekly updates on:
@@ -20,7 +20,7 @@ To maintain the integrity of our collective, we provide bi-weekly updates on:
 ### III. QUARTERLY "ORIGINATOR" REPORTS
 Every 3 months, Foma Briggs will host a live session or 
 release a video report for all registered 925ers™ to review 
-milestones and financial health.
+milestones and financial report.
 
 ### IV. NO SHADOW FUNDING
 We do not accept investments that require us to compromise 
